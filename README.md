@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Nijo Luca
 - 👀 I’m interested in Coding
-- 😀 I'm currently working in RazorPay
 - 📫 How to reach me nijoluca125@gmail.com
 - 🤝 +918848896304
 
